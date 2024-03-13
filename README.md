@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on idk
 - 📫 Dont reach me pls
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: i have a cute cat biatch
+- ⚡ Fun fact: i have a cute cat, biatch
 
 <!---
 FLovi69Flovi/FLovi69Flovi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
